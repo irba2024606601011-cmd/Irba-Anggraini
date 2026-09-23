@@ -1,0 +1,2 @@
+# Irba-Anggraini
+TUGAS KECERDASAN BUATAN, 2
